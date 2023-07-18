@@ -7,7 +7,8 @@
 + 点击下载最新版  
 [https://url86.ctfile.com/d/31230086-57001363-850926](https://url86.ctfile.com/d/31230086-57001363-850926)  
 [https://wwnj.lanzout.com/b0817y1jg](https://wwnj.lanzout.com/b0817y1jg)  
-[https://github.com/Xposed-Modules-Repo/com.r.leapfebruary/releases](https://github.com/Xposed-Modules-Repo/com.r.leapfebruary/releases)
+访问密码：0101  
+[https://github.com/Xposed-Modules-Repo/com.r.leapfebruary/releases](https://github.com/Xposed-Modules-Repo/com.r.leapfebruary/releases)  
 + QQ群  
 [884919874](https://qm.qq.com/cgi-bin/qm/qr?k=sjQ6a40gBHkmQmQVxaDOWxkBfT8qxIzp&jump_from=webapi&authKey=xf0fUl/VY/N/Dp8fInouwCgHu8/2jqXEzzBB9ChrV7kWjDdEU0BC5mWtmJkEVWSe)  
 
